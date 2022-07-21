@@ -4,3 +4,5 @@
 Крутой и явно очень умный парень рассказывает как это сделать:
 
 https://www.youtube.com/watch?v=kY7liQVPQSc
+
+https://youtu.be/KpoHSrLd-ug
